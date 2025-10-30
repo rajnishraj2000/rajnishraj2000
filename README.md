@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @RajnishRajHello
 - 👀 I’m interested in AI and Data Science 
-- 🌱 I’m currently learning and I am a first year student in Greater noida institute of technology (GNIOT)
+- 🌱 I’m currently learning.
 - 📫 You can reach me on gmail rajforphoneuse@gmail.com
 - ⚡ Fun fact: I am entrepreneur 
 
